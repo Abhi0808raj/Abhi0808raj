@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there! My name is Abhiraj and I welcome you to the landmarks of my journey in the world of Computer Science.<br>I am currently aiming to :<br>-Become a competent competitive coder.<br>-Develop some Unique Projects.<br>-Land a Job at a Big Company.<br>Some of my Non Academic Goals Include:<br>-Reach 2000 Rating in chess.<br>-Improve my Photography Skills.<br>-Go on various Solo Journeys.<br><br> 
+Hey there! My name is Abhiraj and I welcome you to the landmarks of my journey in the world of Computer Science.<br>I am currently aiming to :<br>-Become a competent competitive coder.<br>-Develop some Unique Projects.<br>-Land a Job at a Big Company.<br>Some of my Non Academic Goals Include:<br>-Reach 2000 Rating in chess.<br>-Improve my Photography Skills.<br>-Go on various Solo Trip.<br><br> 
 
 
 ## 🌐 Socials:
